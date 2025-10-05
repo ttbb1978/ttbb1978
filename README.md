@@ -1,6 +1,6 @@
 <img src="https://komarev.com/ghpvc/?username=ttbb1978&color=blue&style=for-the-badge&base=0" width=""/>
 
-<img src="https://tb.xyz1978.cloudns.ch/img/001.jpg" width="200" height="" border=""/>
+<img src="https://tb.xyz1978.cloudns.ch/img/001.jpg" width="150" height="" border=""/>
 
 ### *🍀TB🌸ハンサム &nbsp;&nbsp; 没合适的伞，我宁愿淋雨！. . .*
 

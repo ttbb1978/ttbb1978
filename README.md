@@ -4,7 +4,7 @@
 
 ### *🍀TB🌸ハンサム &nbsp;&nbsp; 没合适的伞，我宁愿淋雨！. . .*
 
-## 🚀[*tb.xyz1978.cloudns.ch*](https://tb.xyz1978.cloudns.ch) *ttbb1978*
+## 🚀[*tbwz.pages.dev*](https://tbwz.pages.dev) *ttbb1978*
 
 ## 🚀[*CloudFlare优选汇总*](https://blog.cmliussss.com/p/CloudFlare%E4%BC%98%E9%80%89) *cmliu*
 
